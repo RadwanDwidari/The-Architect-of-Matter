@@ -1,3 +1,4 @@
+🇬🇧 ENGLISH VERSION
 The Zero Point Symphony
 Trans-Elemental Synthesis and High-Density Energy Flow Management
 Final Version 1.0
